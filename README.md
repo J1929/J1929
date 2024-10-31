@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @J1929
+- 👀 I’m interested in somethung cool ...
+- 🌱 I’m currently learning coding
